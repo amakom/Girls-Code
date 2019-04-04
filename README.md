@@ -1,1 +1,1 @@
-The Girls Code Initiative
+The Girls Code Initiative. 
